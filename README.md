@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @assasinelit
 - 👀 I’m interested in  the programation
 - 🌱 I’m currently learning  programation
-- 💞️ I’m looking to collaborate in all proyec what me help to learn
+- 💞️ I’m looking to collaborate in all proyect what me help to learn
 - 📫 How to reach me  in arnulfosulub@gmail.com
 
 <!---
